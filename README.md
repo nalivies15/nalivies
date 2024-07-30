@@ -1,3 +1,5 @@
 # nalivies💋🇦🇱
 Ana Lívia Aparecida Ferruci
-Calvino Barboza Ferraz
+estou estudando no alura
+BR- Óleo-SP
+Tenho 17 anos
